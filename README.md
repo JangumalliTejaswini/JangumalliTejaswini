@@ -6,7 +6,7 @@ I'm a passionate **Frontend Developer** with a strong foundation in **Java** and
 
 Each project I take on is not just about coding — it’s about creating a seamless and engaging experience, solving problems creatively, and pushing the boundaries of design and development.
 
-**Mail:** [your-email@example.com](mailto:your-email@example.com)
+**Mail:** [tejaswinijangumalli1208@gmail.com](mailto:tejaswinijangumalli1208@gmail.com)
 
 ---
 
